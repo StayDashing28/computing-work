@@ -12,7 +12,7 @@ _Aki's POV__
     
    "M...My dog Lucky was k..killed. Who can be so cruel as to do such an evil deed?" wailed Becky.
     
-   Some of Becky's friends went to comfort her, while the chairperson, Hibino, asked:"Where did you find Lucky's body?"
+   Some of Becky's friends went to comfort her, while the chairperson, Kazuha, asked:"Where did you find Lucky's body?"
    
    "O...On the fifth floor, next to the power reactor room."
    
@@ -20,5 +20,5 @@ _Aki's POV__
    
    "Lucky looks so bloody and disfigured. It must have been in the room for more than an hour!"deduced the intelligent Ms Piggy.
    
-   "Well, I suggest we check
+   "Too bad there isn't a CCTV in the power reactor room.It would make identifying the culprit much easier,"sighed Kazuha,appearing dismayed. Yet I could sense a hint of satisfaction 
      
