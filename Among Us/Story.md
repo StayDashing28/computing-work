@@ -20,5 +20,9 @@ _Aki's POV__
    
    "Lucky looks so bloody and disfigured. It must have been in the room for more than an hour!"deduced the intelligent Ms Piggy.
    
-   "Too bad there isn't a CCTV in the power reactor room.It would make identifying the culprit much easier,"sighed Kazuha,appearing dismayed. Yet I could sense a hint of satisfaction 
+   "Too bad there isn't a CCTV in the power reactor room.It would make identifying the culprit much easier,"sighed Kazuha,appearing dismayed. Yet I could sense a hint of satisfaction in her eyes. _Was she-_
+   
+   No. It couldn't be. _Stop overthinking, Mitsuki Chiaki. Kazuha is the chairperson of the Hillyse Assiociation. She's one of the kindest people you know and your best friend after Miyuki. It isn't her. You're overthinking._
+   
+   
      
