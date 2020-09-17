@@ -1,1 +1,1 @@
-**Everyone is part of the Hillyse Assiociation.Basically it's like a club lah but everyone has work to do.**
+**Everyone is part of the Hillyse Assiociation.Basically it's like a club lah but everyone has work to do. Also ppl liv in the building**
