@@ -6,5 +6,5 @@
 3. I write fanfic for fun. Not gonna disclose the fandoms though. <br/> 
 4. My hobbies are writing, worldbuilding, gaming and just daydreaming in general. <br/> 
 
-*army>stay>reveluv>once>neverland>danity*
+
 That's it, bye! <br/> 
