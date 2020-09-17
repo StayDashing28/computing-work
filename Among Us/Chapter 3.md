@@ -14,5 +14,5 @@ _Aki's POV_
 
   "I did not look for you today.Understand?"I told the Village Chief of Hillyse, who looked extremely eager to know what I wanted to say. His name was Ninja24 and he was the treasurer of the Hillyse Assiociation.Many called him the village chief because he used to call himself the Temenggong.
   
-  "You recognise this colour?" I pushed the tube of half-broken lipstick towards
+  "You recognise this colour?" I pushed the tube of half-broken lipstick towards Ninja, who looked at me quizzically.
   
