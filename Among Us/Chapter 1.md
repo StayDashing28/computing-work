@@ -18,7 +18,7 @@ _Aki's POV__
    
    This statememt was greeted with whispers and gossip. The power reactor room was a highly radioactive place and not many people dared to go there. If someone was exposed to the radiation in the room, they would die within ten minutes, so whoever entered would have to wear personal protective equipment and could stay in the room for no more than an hour.
    
-   "Lucky looks so bloody and disfigured. It must have been in the room for more than an hour!"deduced the intelligent Ms Piggy.
+   "Lucky looks so bloody and disfigured. It must have been in the room for more than an hour!"deduced the intelligent Ms Potato,earning nods of approval.
    
    "Too bad there isn't a CCTV in the power reactor room.It would make identifying the culprit much easier,"sighed Kazuha,appearing dismayed. Yet I could sense a hint of satisfaction in her eyes. _Was she-_
    
