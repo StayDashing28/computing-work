@@ -24,6 +24,6 @@ _Aki's POV__
    
    No. It couldn't be. _Stop overthinking, Mitsuki Chiaki. Kazuha is the chairperson of the Hillyse Assiociation. She's one of the kindest people you know and your best friend after Miyuki. It isn't her. You're overthinking._
    
-   I was so lost in my train of thoughts, I did not notice that most people had left the hall already.
+   I was so lost in my train of thoughts, I did not notice that most people had left the hall already.I made my way back to my office.
    
      
