@@ -13,7 +13,9 @@ _A few days later_ >3rd POV<
   Chiaki could not believe what she was seeing and what she was feeling, at all. Her gut instincts were always right. But for this instance,she hoped they were wrong.Utterly wrong.
   
   Without saying a word,Chiaki stormed off, the sound of her boots resonating clearly against the wooden floor and her hands grasping the metal tube so tightly it might break.
+  
   _There is no way I can tell Kasumi.She won't believe me and we might even fall out. I can't tell Miyuki now with Kasumi around.But I need to tell someone now.Someone who can help me._
+  
   Then it hit her. _I know who I can go to now,_ she thought.
   
   
