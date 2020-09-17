@@ -11,3 +11,6 @@ _Aki's POV_
   "She must have something important to say, or else she would not barge in. You may take your leave,Obscurus."
   
   Obscurus glared at me with bulging eyes before exiting the office. I sat down on one of the two velvet wing chairs before taking a glance around to make sure that only two people were listening. 
+
+  "I did not look for you today.Understand?"I told the Village Chief of Hillyse, who looked extremely eager to know what I wanted to say. His name was Ninja24 and he was the treasurer of the Hillyse Assiociation.Many called him the village chief because he used to call himself the Temenggong.
+  
