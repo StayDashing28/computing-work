@@ -7,8 +7,11 @@ _Unknown POV_
 _A few days later_ >3rd POV<
   "Aki! Sumi!"shouted Miyuki elatedly as she ran down the hallway to her best friends Chiaki and Kasumi.She was eager to show them a comic she had just completed. In her excitement,she did not notice what was in front of her.
   Smash!Miyuki tripped and fell on the ground."Ow!It hurts!"she groaned.Upon hearing their best friend's call for help,Chiaki and Kasumi dashes towards Miyuki.They helped her up and asked her if she was okay. 
+  
   "I'm alright,"answered Miyuki, to which Kasumi heaved a sigh of relief.However,Chiaki picked up what had caused her friend to fall.It was a broken lipstick.She scrutinised it closely and noticed the words "Cherry Crush" engraved on the metal tube.
+  
   Chiaki could not believe what she was seeing and what she was feeling, at all. Her gut instincts were always right. But for this instance,she hoped they were wrong.Utterly wrong.
+  
   Without saying a word,Chiaki stormed off, the sound of her boots resonating clearly against the wooden floor and her hands grasping the metal tube so tightly it might break.
   _There is no way I can tell Kasumi.She won't trust me and we might even fall out. I can't tell Miyuki now with Kasumi around.But I need to tell someone now.Someone who can help me._
   Then it hit her. _I know who I can go to now,_ she thought.
