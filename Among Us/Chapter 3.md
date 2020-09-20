@@ -22,5 +22,5 @@ _Aki's POV_
   
   "No, I couldn't tell her as-" I was interrupted by the slam of the door.
   
-  "
+  "Guys, someone died! A freaking person!"screamed Ah Boy who had stormed into the room, his face as red as tomatoes.
   
