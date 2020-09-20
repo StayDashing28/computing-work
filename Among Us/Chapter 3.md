@@ -16,3 +16,7 @@ _Aki's POV_
   
   "You recognise this colour?" I pushed the tube of half-broken lipstick towards Ninja, who looked at me quizzically.
   
+  "No?"
+  
+  I sighed and explained my suspicions to him, and was prompty greeted 
+  
