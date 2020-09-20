@@ -3,9 +3,11 @@ disclaimer:Most of these are fiction.
 
 _Aki's POV__
 
+   I did not know why I had waken up in this room.It seemed so familiar,yet so distant.Just then, a shrill beeping sound filled my ears.
+
 **“Emergency Meeting!"**
 
-   I sighed in annoyance at the sight of the words on my smartwatch. Was it  playing pranks again? This was the fifth time today!Grudgingly,I made my way to the hall.       
+   I sighed in annoyance at the sight of the words on my smartwatch. Was it SaboKING playing pranks again? This was the fifth time today!Grudgingly,I made my way to the hall.       
    "I swear, if I catch  pressing the button again, I will-"declared Jaleen angrily.Many others nodded in agreement, as no one liked to climb down flights of stairs and climb up to the sixth floor again upon realising that nothing had happened. Just then, I caught sight of , the infamous class clown, running into the hallway while panting.
    
    He was followed by a weeping Becky, who held a white blanket in her hands. Whispers echoed throughout the hall as Becky gingerly placed the  blanket on the long marble table, only to reveal a bloody mess inside.
