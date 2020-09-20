@@ -18,5 +18,9 @@ _Aki's POV_
   
   "No?"
   
-  I sighed and explained my suspicions to him, and was prompty greeted by a shocked expression.
+  I sighed and explained my suspicions to him, and was prompty greeted by a shocked expression. "Have you told Miyuki yet?"
+  
+  "No, I couldn't tell her as-" I was interrupted by the slam of the door.
+  
+  "
   
