@@ -18,5 +18,5 @@ _Aki's POV_
   
   "No?"
   
-  I sighed and explained my suspicions to him, and was prompty greeted 
+  I sighed and explained my suspicions to him, and was prompty greeted by a shocked expression.
   
