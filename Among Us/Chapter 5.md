@@ -5,3 +5,18 @@ Miyuki's POV:
   
   "Well,we will explain everything later.Aki, are you okay with telling the class your suspicions?" asked Ninja24. Aki bit her lip and nodded. I really hoped that she was wrong. I didn't-I couldn't believe that my friends were _murderers._
   
+Aki's POV:
+
+  I took a deep breath and looked at the suspects. Tears welled up in my eyes. I could no longer see a talented volleyball player. An amazing storyteller. The brightest girl I ever knew. A leader and a friend. 
+  
+  All I could see, were five murderers. I held back the tears.
+  
+3rd POV:
+  It had been half an hour since Cherry's death had been announced.Some of the girls were planning Cherry's funeral. Some others were doing their own things. However, a scream jolted everyone out of their wits. 
+  
+  "PEOPLE!"It was no surprise that the scream was made by Josh. He then proceeded to tell everyone in a softer voice, "Some of us have some things to say."
+  
+  All eyes were on Ninja24 as he was the first one to break the deafening silence. "We think we know who murdered Lucky and Cherry." His statement was greeted with shocks and whispers. 
+
+  "Do you have any evidence_"rebutted Obscurus, who was interrupted by Bobby, who claimed that she murdered Lucky.Needless to say, this caused further uproar.
+  
