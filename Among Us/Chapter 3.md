@@ -1,12 +1,12 @@
 _Aki's POV_
 
-  I didn't even bother to knock.I didn't care if my hair was messy,I didn't care that I might be disturbing an important coversation.
+  I didn't even bother to knock. I didn't care if my hair was messy,I didn't care that I might be disturbing an important coversation.
   
   _But what was more important than this?_
   
-  I pushed open the door and slammed the tube on the table.Without hesitation or consideration, I blurted out,"I suspect that-"
+  I pushed open the door and slammed the tube on the table.Without hesitation or consideration, I blurted out, "I suspect that-"
   
-  "Ms Mitsuki! Do you know that it is extremely rude to interrupt-"Obscurus, a smart but rule-loving lady,did not let me finish my sentence.
+  "Ms Mitsuki! Do you know that it is extremely rude to interrupt-" Obscurus, a smart but rule-loving lady,did not let me finish my sentence.
   
   "She must have something important to say, or else she would not barge in. You may take your leave,Obscurus."
   
@@ -22,5 +22,5 @@ _Aki's POV_
   
   "No, I couldn't tell her as-" I was interrupted by the slam of the door.
   
-  "Guys, someone died! A freaking person!"screamed Ah Boy who had stormed into the room, his face as red as tomatoes.
+  "Guys, someone died! A person!"screamed Ah Boy who had stormed into the room, his face as red as tomatoes.
   
