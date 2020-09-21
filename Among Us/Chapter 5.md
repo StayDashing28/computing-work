@@ -24,7 +24,7 @@ Aki's POV:
   
  "SMACK!"Obscurus was greeted by a slap on the face by a wailing Becky. A fight almost ensued between the two,when Obscurus suddenly shouted,"I was instructed to do so!"
 
-  "We jolly know you weren't, it was Kasumi Hibino,"uttered WolfRaider, another one of Ninja24's friends.
+  "We jolly know you were, it was Kasumi Hibino,"uttered WolfRaider, another one of Ninja24's friends.
   
   "The surname comes first,mister.And who are you to accuse my sister?"Kazuha glared at WolfRaider with bulging eyes. WolfRaider calmly placed his phone on the table and played a recording. 
   
