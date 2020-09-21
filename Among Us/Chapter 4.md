@@ -11,4 +11,6 @@ _Disclaimer: Cherry is an oc, she is not supposed to represent anyone in the cla
   "Hey! I know what that means!" exclaimed Ariel who had been looking over Obsurcus'shoulder.Everyone looked at her in shock, with some even calling her a genius. "Guys, I am not a genius. I  know what it means because it is in Spanish. It means be careful of misty leaf. What is that even supposed to mean?"Most were puzzled and discussed among themselves what Cherry meant, and why she even wrote the message in Spanish.
   
 Miyuki's POV:
+  I could not believe my ears.Mist. Leaf Didn't that mean-
   
+  _Wait.I have to tell Aki._ Without second thoughts, I went towards Aki, who was 
