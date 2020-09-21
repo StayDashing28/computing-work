@@ -11,7 +11,7 @@ _Aki's POV_
 
    I sighed in annoyance at the sight of the words on my smartwatch. Was it SaboKING playing pranks again? This was the fifth time today! Grudgingly,I made my way to the hall. 
    
-   "I swear, if I catch anyone pressing the button again without a valid reason, I will-"declared Jaleen angrily.Many others nodded in agreement, as no one liked to climb down flights of stairs and climb up to the sixth floor again upon realising that nothing had happened. Just then, I caught sight of SaboKING, the infamous class clown, running into the hallway while panting.
+   "I swear, if I catch anyone pressing the button again without a valid reason, I will-"declared Jaleen angrily.Many others nodded in agreement, as no one liked to climb down flights of stairs and climb up to the sixth floor again upon realising that nothing had happened. Obscurus, a smart but rule-loving lady,was annoyed as she swept golden fur away from her skirt. Why would she do that? Just then, I caught sight of SaboKING, the infamous class clown, running into the hallway while panting.
    
    He was followed by a weeping Becky, who held a white blanket in her hands. Whispers echoed throughout the hall as Becky gingerly placed the  blanket on the long marble table, only to reveal a bloody mess inside.
     
