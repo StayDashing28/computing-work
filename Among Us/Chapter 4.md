@@ -19,5 +19,9 @@ Miyuki's POV:
   
   Pulling me aside, she told me all her thoughts. I really hoped she was talking gibberish, but her words made perfect sense. "What does Kouhai think?" I asked her, wanting to know his reaction.
   
-  "He didn't have time to react, when Ah Boy came in." she sighed. Just then, 
+  "He didn't have time to react, when Ah Boy came in." she sighed. At that very moment, Ninja24 strode towards the both of us, three others following behind. 
+  
+  "We think we know who were involved in the murders,"he declared solemnly.
+  
+  "Were?" I gasped. 
   
