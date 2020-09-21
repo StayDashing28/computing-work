@@ -1,7 +1,9 @@
-disclaimer:Most of these are fiction.
+disclaimer:Most of these are fiction.Some people have weird names with numbers in them because they requested for that name.You can make a pull request but ensure it isn't too ridiculous/inappropriate.Thanks.
+
+PS:It would be great if you vote this story!
 
 
-_Aki's POV__
+_Aki's POV_
 
    I did not know why I had waken up in this room. It seemed so familiar,yet so distant. Just then, a shrill beeping sound filled my ears.
 
