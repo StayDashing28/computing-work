@@ -23,5 +23,5 @@ Miyuki's POV:
   
   "We think we know who were involved in the murders,"he declared solemnly.
   
-  "Were?" I gasped. 
+  _"Were?"_ I gasped. 
   
