@@ -20,7 +20,7 @@ Aki's POV:
 
   "Do you have any evidence-"rebutted Obscurus, who was interrupted by Bobby, who claimed that she murdered Lucky.Needless to say, this caused further uproar.
   
-  Bobby whipped out his phone and showed the public a photograph he had taken of Obsurcus wiping fur down her skirt during the emergency meeting where Lucky was announced death. Beads of sewat were also rolling down her forehead then. "I had intended to use this unglam against her, but it ended up becoming a piece of evidence!"Bobby exclaimed. He also showed everyone footage of Obscurus holding Lucky in her arms from the CCTV.
+  Bobby whipped out his phone and showed the public a photograph he had taken of Obsurcus wiping fur down her skirt during the emergency meeting where Lucky was announced death. Beads of sweat were also rolling down her forehead then. "I had intended to use this unglam against her, but it ended up becoming a piece of evidence!"Bobby exclaimed. He also showed everyone footage of Obscurus holding Lucky in her arms from the CCTV.
   
  "SMACK!"Obscurus was greeted by a slap on the face by a wailing Becky. A fight almost ensued between the two,when Obscurus suddenly shouted,"I was instructed to do so!"
 
