@@ -13,8 +13,11 @@ _Disclaimer: Cherry is an oc, she is not supposed to represent anyone in the cla
 Miyuki's POV:
   I could not believe my ears.Mist. Leaf Didn't that mean-
   
-  _Wait.I have to tell Aki._ Without second thoughts, I ran towards Aki, who was clutching something in her hand, arms crossed.She seemed deep in thought.Was she having the same thoughts as me? But why was she holding something
+  _Wait.I have to tell Aki._ Without second thoughts, I ran towards Aki, who was clutching something in her hand, arms crossed.She seemed deep in thought.Was she having the same thoughts as me? But why was she holding something.
   
   "Aki, what are you holding?" I inquired her. She turned around to face me, her face as pale as wax. She didn't want to say anything, but I looked at her pleadingly. I got a two things in return-a sigh, and probably the greatest shock of my life. 
   
-  Pulling me aside, she told me all her thoughts. I really hoped she was talking gibberish, but her words made perfect sense. 
+  Pulling me aside, she told me all her thoughts. I really hoped she was talking gibberish, but her words made perfect sense. "What does Kouhai think?" I asked her, wanting to know his reaction.
+  
+  "He didn't have time to react, when Ah Boy came in." she sighed. Just then, 
+  
