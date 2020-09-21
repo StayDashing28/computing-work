@@ -6,7 +6,7 @@ _Aki's POV_
   
   I pushed open the door and slammed the tube on the table.Without hesitation or consideration, I blurted out, "I suspect that-"
   
-  "Ms Mitsuki! Do you know that it is extremely rude to interrupt-" Obscurus, a smart but rule-loving lady,did not let me finish my sentence.
+  "Ms Mitsuki! Do you know that it is extremely rude to interrupt-" Obscurus,did not let me finish my sentence.
   
   "She must have something important to say, or else she would not barge in. You may take your leave,Obscurus."
   
