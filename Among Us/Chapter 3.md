@@ -24,3 +24,5 @@ _Aki's POV_
   
   "Guys, someone died! A person!"screamed Ah Boy who had stormed into the room, his face as red as tomatoes.
   
+  
+  
