@@ -1,5 +1,4 @@
 
-
 3rd POV:
 	Everyone was puzzled.How could a dead person tell the truth?A screenshot was shown-one which defined the saying,”A picture says a thousand words.”
 
@@ -21,20 +20,19 @@
 
 	“Showtime,”the boys smiled at Aki, who knew just what to do.But did she have the courage to do it?
 
+
 	No,she didn’t. But she had to.
 
 
 Aki’s POV:
 
-	
-
 	I closed my eyes.I tried to think that I was wrong. But I couldn’t. Not anymore. I let the tears fall from my eyes, and declared: “Hibino Kazuha is behind Cherry's death! Cherry knew that she could not write in English, so she resorted to writing in her third language as she knew Ariel could decipher the code.Hoja means leaf, and Kazuha means Japanese leaf.” I was greeted with puzzled looks. Kazuha banged the table, but I continued. “Look at this lipstick. It is the exact same shade which Cherry used to write the note. She wears this lipstick everyday. You all may come and smell it.”
 
 
-	A crowd came up to smell the lipstick. “It smells like peach! Not the usual cherry fragrance!”piped up Jia Ying. 
+	A crowd came up to smell the lipstick. “It smells like peach! Not the usual cherry fragrance!”piped up Jia Ying. 
 
 
-	There was only one person who used peach perfume in the Hillyse Assiociation. 
+	There was only one person who used peach perfume in the Hillyse Assiociation. 
 
 
 	_Hibino Kazuha._
@@ -42,6 +40,5 @@ Aki’s POV:
 
 	__Mitsuki Chiaki, you will pay for exposing me.__
 
-        That was the last thing I heard, before all I saw was darkness.
 
         >End<
