@@ -30,6 +30,16 @@ Aki's POV:
   
   "_I..It was Kasumi! S...She saw me stealing from the class fund, so she threatened me and asked me to do something bad. i cannot tell you what I did. I...I had no choice! Here's the money!"_ Obscurus' voice was crystal clear. Apparently, before Aki barged in, Obscurus had confessed to Ninja24, who was calling WolfRaider before.He forgot to hang up, so Wolfraider heard and recorded everything.
   
+  Kasumi cupped her face in her hands. Needless to say, she was Becky's next target. Kasumi confessed to ordering Obscurus to kill Lucky, as Lucky had licked her dress before.
+
+  "That gives you NO reason to kill Lucky!"roared Becky, whose heart was probably already in a million pieces.Some comforted Becky, some insulted the two culprits.No one seemed to notice that a new clip was being played on the visualiser-it was of an abnormally tall figure placing a sharp black object in Cherry's sofa.
   
-  
+   There was only one person in the Hillyse Assiociation of such height.
+
+   Bangxtwice turned around to look at her friend, pure horror drawn on her face.She felt betrayed and disbelief at the same time.However,Heather was quick to dismiss, saying that the CCTV footage could not prove anything.
+
+  "But a dead person can,"smirked Vincent, the vice-chairperson of the Hillyse Assiociation. 
+
+
+
   
