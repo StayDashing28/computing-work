@@ -7,5 +7,12 @@
 **Cherry:** I know a secret!
 
 **Kazuha:** What?
+
+**Cherry**: I...I saw Obscurus bring Lucky into the reactor room.I didn’t dare to say it that day as I had no evidence. Also, I overheard Kasumi saying something to Obscurus about Lucky.
+
+**Kazuha**: No problem, I will look into it.
+
+Becky was even more agitated than ever now. Her eyes were puffy red from all the crying. Kazuha, however, was insistent that this did not prove anything.”How can you call Heather a murderer because of this?”
+
 		
 
