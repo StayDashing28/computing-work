@@ -5,6 +5,7 @@
 		
 	
 **Cherry:** I know a secret!
+
 **Kazuha:** What?
 		
 
